@@ -1,0 +1,1 @@
+In Maze Escape: Beneath the Surface, a massive giant blocks the main road. To reach the exit, players must dive underground and navigate a dangerous 16-bit maze filled with tight turns and reset-traps. Can you find your way "Beneath the Surface" and reach the flag?
